@@ -1,1 +1,0 @@
-Rathnakar --Kammapati
